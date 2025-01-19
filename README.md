@@ -36,7 +36,7 @@
 
 ## 💬 Let's Connect:
 - 📧 Email: yura.tokar@gmail.com
-- 💼 LinkedIn: [linkedin.com/in/YuriiTokar](https://linkedin.com/in/YuriiTokar)
+- 💼 LinkedIn: [linkedin.com/in/YuriiTokar](https://www.linkedin.com/in/yuriy-tokar/)
 
 ---
 
